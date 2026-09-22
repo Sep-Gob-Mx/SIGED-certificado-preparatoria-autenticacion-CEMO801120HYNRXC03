@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CEMO801120HYNRXC03
+CEMO801120HYNRXC03
